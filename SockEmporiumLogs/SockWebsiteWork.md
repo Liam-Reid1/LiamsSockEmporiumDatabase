@@ -1,8 +1,5 @@
 # Sock Website Work
 
-[https://www.notion.so](https://www.notion.so)
-
-[https://www.notion.so](https://www.notion.so)
 
 April 27
 
